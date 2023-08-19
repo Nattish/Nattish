@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Nattish
+- 👀 I’m interested in crypto!
